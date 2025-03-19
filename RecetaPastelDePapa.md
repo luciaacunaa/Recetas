@@ -6,6 +6,7 @@ Sal y Pimienta
 Queso rayado
 Jamón
 Huevos previamente cocidos
+Queso Muzzarella
 
 PASO A PASO
 Primero preparamos el puré de papas, para eso pelamos las papas y las cortamos en trozos grandes. Las ponemos en una olla con agua y sal, y las cocinamos hasta que estén tiernas. Luego, las escurrimos y las volvemos a poner en la olla.
